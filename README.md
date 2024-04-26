@@ -1,0 +1,1 @@
+# Bot_Patters-for-ProfitChart
